@@ -1,3 +1,5 @@
+🇩🇰❤️🇺🇦
+
 Hi, I'm @hcsaustrup :-)
 
 A child of the 70s, born and raised on CP/M, Pascal, the mighty Zilog Z80 and a healthy dose of soldering tin.
